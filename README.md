@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @44xarek
+- 👀 I’m interested in working on Fivem Servers!
+- 📫 How to reach me: Contact via Discord 44.xarek
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: Leo is under my Ayri :D
